@@ -1,4 +1,4 @@
-# myProtfolioENG
+# myPortfolioENG
 complete description of my engineering journey 
 My passion 💟🕊 for electronics and technology runs in my veins, as I am an engineer by heart and soul.
 🟥 🟩 🟦 But my 💲☂️🅾️®️🇾 took a twist when I faced the harsh reality of losing my dreams to the ruthless market. 
